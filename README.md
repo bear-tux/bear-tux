@@ -1,4 +1,4 @@
-Hi there 👋,
+Hi there 🐻,
 
 I am a cybersecurity student looking to strengthen my practical experience by contributing to real-world projects. My goal is to build a strong professional profile by working on collaborative projects and publishing my own work.
 
